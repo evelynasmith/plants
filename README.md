@@ -1,2 +1,2 @@
 # plants
-*Number 10 requires new front yeard landscaping. Choose some plants!*
+*Number 10 requires new front yard landscaping. Choose some plants!*
